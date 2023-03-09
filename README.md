@@ -1,4 +1,4 @@
-![banner](https://i.postimg.cc/kgks6LJW/rindou-only-banner.webp)
+![banner](https://i.imgur.com/K7vQijv.png)
 
 <p align="center"><b>
 Yes, it is a bit empty here for now.
